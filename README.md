@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Joshrob93
+- 👀 I’m interested in ... Gaming, being in Nature and spending time with my family.
+- 🌱 I’m currently learning ... Business & how to create web pages!
+- 😄 Pronouns: ... He/Him
+- ⚡ Fun fact: ... I am an eletcronics and communications technician currently working in the mining industry.
